@@ -1,1 +1,1 @@
-# project-1
+As is very clear from the name of this file, this is our first project. We are underway to learning new things and creating something exciting; but...something prevents us from embarking on this journey and we have a firm and unwavering resolution to overcome any obstacle that presents itself...YEAH!!!
